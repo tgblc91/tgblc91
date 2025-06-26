@@ -13,7 +13,7 @@
 
 https://t.me/chiguatt_pro
 
-91爆料 商务合作  @wsl952
+91爆料 商务合作  https://t.me/XRCG007
 
 官方微信QQ群 点击加入官方Twitter https://twitter.com/91blw
 
