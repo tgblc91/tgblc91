@@ -2,7 +2,7 @@
 
 91爆料 - 最新网址
 
-⏰最新地址(免翻墙)  http://bliao4.com
+⏰最新地址(免翻墙)  http://bliao5.com
 
 ⏰永久官网(需翻墙)  https://91blc.com
 
